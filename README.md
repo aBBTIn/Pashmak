@@ -1,0 +1,2 @@
+# Pashmak
+Gorbe kocholoye pashmalo
